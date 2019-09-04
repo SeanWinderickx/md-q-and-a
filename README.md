@@ -2,8 +2,8 @@
 
 
 What's your favourite type of animal?
-Write your answer underlined.
+Write your answer bold.
 
-<u>Whale Axel</u>
+__Whale Axel__
 
-<u>what is the time</u>
+__what is the time__
