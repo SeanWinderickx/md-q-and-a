@@ -19,5 +19,5 @@ _Welk weer hebben we morgen?_ Cursief
 _zonnig_ 
 best sauce to put on fries (samurai is the only good option don't @ me)also answer in italic (Luna)
 
-
+Samurai ofcourse ! Favorite Spongebob character ? |striketrough| (Laurens)
 
