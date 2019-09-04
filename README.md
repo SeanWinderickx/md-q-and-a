@@ -6,11 +6,11 @@ Write your answer bold.
 
 __Whale Axel__
 
-__what is the time__
+__what is the time? in italic en bold__
 
 
 
-**nu is het 16 16u10** Katrien
+___nu is het 16 16u10___ Katrien
 
 _Welk weer hebben we morgen?_ Cursief
 
