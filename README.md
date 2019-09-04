@@ -21,3 +21,7 @@ best sauce to put on fries (samurai is the only good option don't @ me)also answ
 
 Samurai ofcourse ! Favorite Spongebob character ? |striketrough| (Laurens)
 
+
+
+g̶a̶r̶r̶i̶t̶ ̶t̶h̶e̶ ̶s̶n̶a̶i̶l̶ '(kajetan) do u smoke ? answer in hoofdletters
+
